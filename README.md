@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a Student Currently I'm Purusing  a Final year BE
+“Recently Graduated B.E| Full stack developer| AI Enthusiast
 
 
 ## 🌐 Socials:
